@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on this particular field 
 - 📫 How to reach me soon
 - 😄 Pronouns: charlotte
-- ⚡ Fun fact: sleeping let
+- ⚡ Fun fact: Team Pizza 
 
 <!---
 ChattyManigu/ChattyManigu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
